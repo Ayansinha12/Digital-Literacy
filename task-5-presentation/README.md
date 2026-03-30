@@ -1,8 +1,9 @@
 # \# Digital Literacy
 
 
-##### Tanmay Ishwar
-##### REG NO - 25BCY10214
+##### Ayan Sinha
+
+##### REG NO - 25BCE11180
 
 
 ## \# Project Overview
